@@ -1,4 +1,4 @@
-# 2026_M-Enabling-2025_ASEE
+# 2026 M-Enabling and 2025 ASEE
 
 In the 2026 M-Enabling panel, my contribution combines the ASEE paper and CSUN talk listed below.
 
